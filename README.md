@@ -9,5 +9,3 @@ Do you need to work on your aim in FPS games? Well, with a little practice a day
 -----------------------------------------------------------
 
 Please consider donating! Even a small tip helps a lot. Any amount of Robux motivates us to work harder, and also provides us with the resources we need to make games faster, and better.
-
-https://www.roblox.com/games/6493311681/FPS-Aim-Trainer-Update
